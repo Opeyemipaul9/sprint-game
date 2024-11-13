@@ -1,1 +1,1 @@
-# MATH SPRINT GAME [{https://opeyemipaul9.github.io/sprint-game/}]
+# MATH SPRINT GAME [Link](https://opeyemipaul9.github.io/sprint-game/)
